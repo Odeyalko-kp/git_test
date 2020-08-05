@@ -1,0 +1,2 @@
+First Line
+NEW BEST IDEA
